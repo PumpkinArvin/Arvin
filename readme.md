@@ -1,1 +1,1 @@
-Welcome to Wuhan University
+Welcome to WHU IOS club
