@@ -1,1 +1,2 @@
-Welcome to WHU IOS club
+Welcome to WHU.
+
